@@ -1,1 +1,0 @@
-# afgytr.github.io
